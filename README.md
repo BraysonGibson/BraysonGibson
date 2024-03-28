@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @BraysonGibson
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ... give me coins
+- 👀 I’m interested in ...fortnite
+- 🌱 I’m currently learning ...fortnite
+- 💞️ I’m looking to collaborate on ...fortnite
+- 📫 How to reach me ...fortnite
+- 😄 Pronouns: ...fortnite
+- ⚡ Fun fact: ... give me v-bucks
 - 
 
 <!---
